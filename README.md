@@ -19,7 +19,4 @@ Here are some ideas to get you started:
 
 ![parrot](https://cultofthepartyparrot.com/parrots/hd/parrot.gif)
 ![parrot](https://cultofthepartyparrot.com/parrots/hd/parrot.gif)
-![parrot](https://cultofthepartyparrot.com/parrots/hd/parrot.gif)
-![parrot](https://cultofthepartyparrot.com/parrots/hd/parrot.gif)
-![parrot](https://cultofthepartyparrot.com/parrots/hd/parrot.gif)
-![parrot](https://cultofthepartyparrot.com/parrots/hd/parrot.gif)
+
